@@ -1,4 +1,4 @@
-# People.-Dr-Waku
+# People.Dr-Waku
 Home: https://www.youtube.com/@DrWaku profile https://linktr.ee/seriouself
 
 # Favorite:
